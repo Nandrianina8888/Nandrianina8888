@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Nandrianina8888
 - 👀 I’m interested in computational social sciences
-- 🌱 I’m currently learning economics, mathematics, sociology, psychology, social science, computer science, law
+- 🌱 I’m currently learning economics, mathematics, sociology, psychology, social science, law, accounting
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me: via e-mail <Nandrianina8888@gmail.com>
 
